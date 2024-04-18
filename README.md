@@ -12,4 +12,4 @@ mostly pefered they/them╯
 - when I'm making a pony I could be offtab for refs
 - I'm sensitive, akward, shy, nervous.
 - I'm usually in the roblox area or docks
-- \\ I role play lab rps, Mafia rps, School rps. sometimes Skin maker and mini games.//
+- \\ I role play lab rps, Mafia rps, School rps. sometimes FTS(find the skin) and mini games.//
